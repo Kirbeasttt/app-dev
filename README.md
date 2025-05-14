@@ -1,7 +1,7 @@
 # My Favorite Series: Naruto
 
 **Genre**: Action, Adventure, Fantasy  
-**Platform**: Crunchyroll, Netflix  
+**Platform**: Bilibili, Netflix  
 **Created by**: Masashi Kishimoto
 
 ## Why I Love It
